@@ -1,1 +1,2 @@
-[link to mindx](https://mindx.edu.vn/)
+[Ảnh dahyun và lisa ](/images/simp.pgn)
+
